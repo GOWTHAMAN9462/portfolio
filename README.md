@@ -1,2 +1,0 @@
-# portfolio
-Gowthaman K S
